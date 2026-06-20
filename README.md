@@ -1,3 +1,3 @@
-``dawg i swear i feel like i wanna talk about all my problems to the fish and forget it if that can help to make myself calmdown...``
+``i'n Tartaglia/Ajax/Childe irl haha trust...``
 
 ![](https://imagetourl.cloud/r2r0jfsb.jpg)
