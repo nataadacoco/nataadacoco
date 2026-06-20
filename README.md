@@ -1,3 +1,3 @@
-``one day i'll know what's the meaning of true life is... life is indeed bitter dawg.``
+``dawg i swear i feel like i wanna talk about all my problems to the fish and forget it if that can help to make myself calmdown...``
 
 ![](https://imagetourl.cloud/r2r0jfsb.jpg)
