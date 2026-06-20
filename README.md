@@ -1,3 +1,3 @@
-``i'n Tartaglia/Ajax/Childe irl haha trust...``
+``Hi Comrade! I'm Shion.``
 
 ![](https://imagetourl.cloud/r2r0jfsb.jpg)
