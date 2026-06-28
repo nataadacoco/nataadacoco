@@ -1,6 +1,6 @@
-<p align="center">"nya :3"
+<p align="center">^_^
 
-![](https://imagetourl.cloud/hmpzr8rl.jpg)
+![](https://imagetourl.cloud/zspe3ovq.jpg)
 
 ───〃★
 
