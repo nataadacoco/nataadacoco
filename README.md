@@ -1,14 +1,16 @@
-<p align="center">^_^
+<p align="center">
+  <img src="https://imagetourl.cloud/3eo21bvu.png" alt="alienstage" width="55" />
+</p>
 
-![](https://imagetourl.cloud/zspe3ovq.jpg)
+![](https://imagetourl.cloud/rcxzifsy.jpg)
 
-───〃★
-
+<div align="center">
 <details>
-  <summary>୨୧</summary>
-  Old art that i found on ma gallery hehe ^_^
-  <img src="https://imagetourl.cloud/lcjqg8lx.jpg" width="400" alt="art">
-  and... lazy art.
-  <img src="https://imagetourl.cloud/e5ssgk4c.png" width="400" alt="art">
-  
+  <summary><b>݁ ˖Ი𐑼⋆</b></summary>
+  <p align="center">
+    <br>
+    <img src="https://imagetourl.cloud/ntuubgl5.jpg" alt="sua" width="45%">
+    <img src="https://imagetourl.cloud/waoctsbb.jpg" alt="mizi" width="45%">
+  </p>
 </details>
+</div>
